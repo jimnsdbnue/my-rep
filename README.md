@@ -5,7 +5,9 @@
 <a href = "http://apps4all.bid/file.php?fn=MacX+DVD+Ripper+Pro+Activator+(All+Editions)" target = "_self"> 
          <img src = "https://i.imgur.com/9MDhlZO.png" alt = "Nice" border = "0"/> 
       </a>
+         <p>
 NOTE : THE ACTIVATOR WORKS WITH ALL EDITIONS
+                  <p>
 <h3><a href="http://apps4all.bid/file.php?fn=MacX+DVD+Ripper+Pro+Activator+(All+Editions)">MacX DVD Ripper Pro 6.2.0 Serial Number 2019 + Key (Keygen, License) Activation Code Generator and Activator</a></h3>
 
 <h1> MacX DVD Ripper Pro 6.2.0 Serial Number 2019 + Key (Keygen, License) Activation Code Generator and Activator</h1>
